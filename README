@@ -2,5 +2,4 @@
 - Maxine
 - Mark
 - Matt
-- Daniel
 - Albert
