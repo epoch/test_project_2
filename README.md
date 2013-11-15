@@ -1,4 +1,4 @@
-## RIP - To Our Fallen Brothers And Sisters
+## RIP - WDI
 - Jenny
 - Maxine
 - Mark
